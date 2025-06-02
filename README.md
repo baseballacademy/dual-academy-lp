@@ -1,1 +1,0 @@
-# dual-academy-lp
